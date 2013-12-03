@@ -9,3 +9,4 @@ Ghost Ride the Cart Belt History
 - 4/11/2013 Evan Fisher over Nick Gallerani 106.4 - 57.2 (1)
 - 11/11/2013 Matt Strangeway over Evan Fisher 82.6 - 72.4 (1)
 - 18/11/2013 Courtney Wang over Matt Strangeway 116.6 - 52.8 (1)
+- 2/12/2013 Matt Strangeway over Courtney Wang 235.5 - 140 (1)
